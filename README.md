@@ -1,1 +1,1 @@
-# ProyectPhilosophy.github.io
+# https://ProyectPhilosophy.github.io
